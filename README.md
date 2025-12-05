@@ -22,4 +22,4 @@
 <img width="1200" height="480" alt="xssdbt" src="https://github.com/user-attachments/assets/e3cff779-6468-46f6-ba85-2d1c6dbc160a" />
 
 
-
+ts still wip bcuz im tired and lazy as freak
