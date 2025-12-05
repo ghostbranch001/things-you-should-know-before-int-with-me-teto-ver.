@@ -19,5 +19,7 @@
 6  .  i'm a slow respond so please be patient with me (  But dni when my status is away / busy ) ![tumblr_355d60351a3fb71aa668c84e51f134a7_9d094a1b_75](https://github.com/user-attachments/assets/1e188565-476d-462d-b6ad-f96cfdc7423f)
 
 
+<img width="1200" height="480" alt="xssdbt" src="https://github.com/user-attachments/assets/e3cff779-6468-46f6-ba85-2d1c6dbc160a" /><img width="1200" height="480" alt="xssdbt" src="https://github.com/user-attachments/assets/e3cff779-6468-46f6-ba85-2d1c6dbc160a" />
+
 
 
